@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nishi-1110111
+- t.me/nishi-1110111
+- x.com/Nishi265528
+- 📖 is a student
