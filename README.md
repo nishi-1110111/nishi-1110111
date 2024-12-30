@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @nishi-1110111
+- if you want to connect me👇
 - t.me/nishi-1110111
 - x.com/Nishi265528
-- 📖 is a student
+- 📖 just a student(Eighth grade students)
