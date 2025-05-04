@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @nishi-1110111
-- A person who can do nothing but tinkering with computers🌚
-- if you want to contact me👇
+- If you want to contact me👇
 - [Telegram](t.me/nishi_1110111) & [X(Twitter)](x.com/Nishi265528)
 - 📖 just a student(Eighth grade students)
 <picture>
