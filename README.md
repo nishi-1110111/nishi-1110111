@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @nishi-1110111
 - If you want to contact me👇
+- I'm learning my first language: kotlin
 - [Telegram](t.me/nishi_1110111) & [X(Twitter)](x.com/Nishi265528)
 - 📖 just a student
 <picture>
